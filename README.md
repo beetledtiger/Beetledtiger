@@ -1,6 +1,6 @@
 <p align="center"> <img src="https://64.media.tumblr.com/f487ec53c0628df78d3eb73556b836df/d9bb51da9a094adf-6f/s540x810/120d4c37c0ecaf17fcdb9ca42f09538217939e38.jpg">
   
-### <p align="center">  ᶻz ⠀⠀  *Neo Metal or Aiden*  ⠀.
+### <p align="center">  ᶻz ⠀⠀  *Macaque or Aiden*  ⠀.
 <p align="center"> ⠀ 6teen   ⠀★☆   ⠀He Him Xe Xem +
 <p align="center"> ⠀ patreon byi   ⠀⟢   ⠀sign ata !
 <p align="center"> <a href="https://beetledtiger.atabook.org">atabook</a>　　<a href="https://www.patreon.com/beetledtiger/about">patreon</a>　　<a href="https://pronouns.cc/@beetledtiger">pronouns</a> <br>
