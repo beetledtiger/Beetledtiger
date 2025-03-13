@@ -7,5 +7,5 @@
 <p align="center">  ⸝⸝⸝ 
 <p align="center"> C+H is a HUGE comfort for me please feel free to c+h anytime! If you int i ask that you whisp me as I'm offtab most of the time unless working on a skin
 
-<p align="center"> <img src="https://media.discordapp.net/attachments/1183525934779875348/1347919616193724457/Untitled271_20250308130942.png?ex=67cd9377&is=67cc41f7&hm=355305be24062cb09360d7a7da5b1d206ee1f3dcb3ffaaed7f48014cb1e06728&=&format=webp&quality=lossless&width=580&height=656">
+<p align="center"> <img src="https://media.discordapp.net/attachments/1183525934779875348/1347919616193724457/Untitled271_20250308130942.png?ex=67d42af7&is=67d2d977&hm=dba98db973e9fc7686061084069ae3bd9c94177900c2816d3527afd4b64adc88&=&format=webp&quality=lossless&width=796&height=823">
 <p align="center"> say hi to my beautiful girl zari <3 , artwork by me
